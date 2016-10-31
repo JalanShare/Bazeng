@@ -1,0 +1,2 @@
+# Bazeng
+Amankan linkmu
